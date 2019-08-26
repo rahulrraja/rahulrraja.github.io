@@ -1,1 +1,1 @@
-Resume - https://rahulrraja.github.io
+https://rahulrraja.github.io
